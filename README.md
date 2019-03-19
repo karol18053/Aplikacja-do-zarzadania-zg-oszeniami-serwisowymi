@@ -1,0 +1,1 @@
+# Aplikacja-do-zarzadania-zg-oszeniami-serwisowymi
